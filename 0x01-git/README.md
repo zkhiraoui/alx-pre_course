@@ -1,1 +1,1 @@
-hi, im new here
+NEW AND FRESH
